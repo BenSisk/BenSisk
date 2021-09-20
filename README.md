@@ -1,1 +1,1 @@
-<img src="https://c.tenor.com/7EgQ-k7Y8ycAAAAd/pfsf1968.gif"></img>
+<img src="https://thumbs.gfycat.com/SomeDisguisedBadger-size_restricted.gif"></img>
